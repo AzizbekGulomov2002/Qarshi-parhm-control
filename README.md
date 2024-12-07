@@ -1,0 +1,1 @@
+# Qarshi-parhm-control
